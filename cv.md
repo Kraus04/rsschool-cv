@@ -17,7 +17,7 @@ Usually I used this:
 *****
 That's why I never worked in IT.
 *****
-###### Belorussian Russian University one love
+###### Belorussian Russian University one love!
 ###### English is my me
 *****
 **Contacts:**
